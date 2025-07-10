@@ -24,4 +24,4 @@
 
 现在就点击任意入口，立即进入2025年最受欢迎的日本成人影片天堂，享受前所未有的看片体验，释放你的全部幻想！
 
-<span style="display:none;">[Canonical link]  (  ）</span> 
+<span style="display:none;">[Canonical link]  ( https://github.com/tnn1205/riben00001 ）</span> 
